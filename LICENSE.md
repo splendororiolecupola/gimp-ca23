@@ -1,4 +1,4 @@
-# 
+# elite Adobe Photoshop para PC complementos es el mejor Adobe Photoshop para PC complementos con simulación de fluidos y control de cámara. Seguro, confiable y optimizado para el
 
 
 
